@@ -4,7 +4,7 @@
 - 💞️ I’m not looking to collaborate on anything.
 - 📫 How to reach me: can you message me on GitHub? That way prolly.
 - 😄 Pronouns: they/them
-- ⚡ Fun fact about me: I'm autistic as hell.  
+- ⚡ Fun fact about me: I'm autistic as hell. Current Autism WR high score holder.
 
 <!---
 exksalted/exksalted is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
